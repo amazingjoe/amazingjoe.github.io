@@ -1,2 +1,0 @@
-# amazingjoe.github.io
-Website
